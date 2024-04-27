@@ -1,6 +1,6 @@
 # AnyxCheatzzV3!
 
-[Menu Preview](https://pbs.twimg.com/media/GFPSMTvWIAAOoaP?format=jpg&name=large))
+[Menu Preview](https://pbs.twimg.com/media/GFPSMTvWIAAOoaP?format=jpg&name=large)
 
 ## AnyxCheatzzV3 is the best CNP of the Original Che@t
 
