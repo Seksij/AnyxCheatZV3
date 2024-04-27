@@ -1,4 +1,6 @@
-# AnyxCheatzzV3! [download](https://github.com/Seksij/AnyxCheatzzV3/assets/99182645/d658e111-eb21-4a06-8560-22f4137ec61d)
+# AnyxCheatzzV3!
+
+[Menu Preview](https://github.com/Seksij/AnyxCheatzzV3/assets/99182645/d658e111-eb21-4a06-8560-22f4137ec61d)
 
 ## AnyxCheatzzV3 is the best CNP of the Original Che@t
 
